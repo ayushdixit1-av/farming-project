@@ -14,7 +14,9 @@ Agri Trade Hub is an innovative farming marketplace that simplifies crop buying 
 
 - **Amey Dongre**  
 - **Ayush Dixit**  
-- **Ayush Yadav**  
+- **Ayush Yadav**
+- **Anamika Yadav**
+- **Ananya Saxena**  
 > 🎓 1st Year CS Students, PSIT Kanpur
 
 ---
