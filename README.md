@@ -79,7 +79,7 @@ By merging agriculture with technology, this platform creates a sustainable and 
 
 ## 📞 Contact
 
-**Amey Dongre**  
-📱 7376519891  
-📧 amey.dongre2005@gmail.com
+**Amey Dongre , Ayush Dixit **
+📱 7376519891  , 9555676762
+📧 amey.dongre2005@gmail.com , ayushdixivsecpanki@gmail.com
 
